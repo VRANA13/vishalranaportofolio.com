@@ -1,1 +1,0 @@
-# vishalranaportofolio.com
